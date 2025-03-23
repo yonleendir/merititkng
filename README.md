@@ -1,4 +1,4 @@
-<h1>meritking Giriş İçin Tıklayınız ✅</h1>
+<h1>Meritking Giriş İçin Tıklayınız ✅</h1>
 
 <a href="http://www.redly.vip/3A5tsFl">meritking Giriş İçin Tıklayınız ✅</a> 
 
